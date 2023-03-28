@@ -1,0 +1,1 @@
+Internet banking, also known as online banking, is a service provided by banks that allows their customers to conduct various financial transactions through the internet. With internet banking, customers can manage their bank accounts, transfer funds, pay bills, view account statements, and perform other banking services using a computer, smartphone, or tablet.
